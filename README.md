@@ -1,1 +1,0 @@
-# rubikscubesquad.github.io
